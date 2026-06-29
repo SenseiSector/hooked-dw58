@@ -1,4 +1,4 @@
-
+hooked ultimate Script is the best hooked Script, featuring anti-ban and teleport. Safe and powerful for all your needs.
 
 
 
